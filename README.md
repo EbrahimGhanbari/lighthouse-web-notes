@@ -1,1 +1,1 @@
-# [Ebrahim Ghanbari]'s Notes
+# Ebrahim Ghanbari's Notes
